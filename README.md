@@ -13,4 +13,4 @@ _leticia.aparecida.souza03@escola.pr.gov.br_
 
 
 
-![](https://media1.tenor.com/m/xjvmoEYtjwEAAAAC/thumbs-up-double-thumbs-up.gif)
+![](https://media1.tenor.com/m/cgYRjEbu4lgAAAAd/side-eye-cat.gif)
